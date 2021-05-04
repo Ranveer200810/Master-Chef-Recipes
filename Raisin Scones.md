@@ -5,12 +5,12 @@
 Ingredients : 
 
 500g all purpose ***Flour***, 
-80g Sugar, 
-2 tablespoon Baking Powder, 
-1 teaspoon Salt, 
-160g unsalted Butter  [ Cold and cut in cubes ], 
-70g Raisins, 
-240 ml Milk  [ Can use skimmed ]
+80g ***Sugar***, 
+2 tablespoon ***Baking Powder***, 
+1 teaspoon ***Salt***, 
+160g unsalted ***Butter***  [ Cold and cut in cubes ], 
+70g ***Raisins***, 
+240 ml ***Milk***  [ Can use skimmed ]
 
 .....
 
