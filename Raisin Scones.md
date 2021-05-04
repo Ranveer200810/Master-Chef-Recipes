@@ -4,7 +4,7 @@
 
 Ingredients : 
 
-500g all purpose Flour, 
+500g all purpose ***Flour***, 
 80g Sugar, 
 2 tablespoon Baking Powder, 
 1 teaspoon Salt, 
@@ -43,6 +43,7 @@ Method :
 
 ## Done! Enjoy!
 
+![Image of it](https://cravingsjournal.com/wp-content/uploads/2019/04/raisin-scones-2.jpg)
 
 
 
@@ -51,5 +52,4 @@ Method :
 
 
 
-Image : https://cravingsjournal.com/wp-content/uploads/2019/04/raisin-scones-6.jpg
 Refference : https://cravingsjournal.com/raisin-scones/
